@@ -29,7 +29,7 @@ Filosofía, religión o política, des-figuran en modo alguno la procedencia ori
 > Sujeto liberado a través del desapego a la palabra-lenguaje y negado a la lógica del mundo-ilusión, no-mente frente a una mente ocupada, a la espera del devenir y no atascado en el ser. Ser y no-ser ese ya no es un dilema, el pensamiento ya no se restringe a dicotomias, opuestos o contrarios, la no-mente como sujeto infinito comprehende su dación en la unidad multiple del amor, lo que da no quita, sino que más bien da en exceso: paradojas.
 
 
-## El sujeto liberado es un sujeto adonado, dado en gracia por el amor.
+## El sujeto liberado es un sujeto adonado, dado en gracia por el amor para el devenir inevitable, para el devenir que aun ahora y siempre no tiene nombre.
 
 
 
