@@ -9,7 +9,13 @@
 
 ## El sujeto que ahora piensa que es objeto de amor u odio en el devenir, se encuentra cautivo en el dominio del ser y de la conciencia individualizada (Ego)
 > No existe el amor o el odio por la experiencia de un sujeto, más bien hay un sujeto por la experiencia del amor, así el odio es derivado por la ausencia
-> del amor. 
+> del amor.
+
+
+### El amor da al sujeto, pues se constituye de lo que recibe.
+> La sabiduría primordial implica llegar a este pensamiento original, mucho antes que la palabra-lenguaje del ser des-figure la procedencia real del sujeto.
+Filosofía, religión o política, des-figuran en modo alguno la procedencia original del sujeto. La dilatan o la orientan según otros fines.
+
 
 
 
