@@ -17,7 +17,8 @@
 Filosofía, religión o política, des-figuran en modo alguno la procedencia original del sujeto. La dilatan o la orientan según otros fines.
 
 
-## Alcanzar fundamento para sostenerse como sujeto, implica comprender que la palabra-lenguaje encubre la única verdad que hay que buscar. El silencio es el mejor camino para atravesar la ilusión-apariencia. El mundo, el sujeto y la palabra-lenguaje forman parte de la ilusión-apariencia, pues tienen fecha de caducidad, son esencialmente contingentes. Esa es la única verdad: el amor como deseo que adviene es lo eterno-imperecedero, el devenir es inevitable. Meditar esta verdad es el camino del amor, la unica verdad fundante.
+## Alcanzar fundamento para sostenerse como sujeto, implica comprender que la palabra-lenguaje encubre la única verdad que hay que buscar. El silencio es el mejor camino para atravesar la ilusión-apariencia. 
+> El mundo, el sujeto y la palabra-lenguaje forman parte de la ilusión-apariencia, pues tienen fecha de caducidad, son esencialmente contingentes. Esa es la única verdad: el amor como deseo que adviene es lo eterno-imperecedero, el devenir es inevitable. Meditar esta verdad es el camino del amor, la unica verdad fundante.
 
 
 ## El sujeto que se adentra a la no-mente, evitando la ilusión-apariencia comprehende en el fondo la verdad del devenir: el amor es lo único que da. 
