@@ -1,10 +1,3 @@
-<!DOCTYPE html>
-<html>
-  <head>
-    <meta charset="utf-8">
-    <title>Devenir</title>
-  </head>
-  <body>
 # Devenir 
 
 ### El devenir es inevitable, mientras que nuestros pensamientos dan figura a lo que ad-viene a través de la palabra-lenguaje del Ser. 
@@ -37,5 +30,3 @@ Filosofía, religión o política, des-figuran en modo alguno la procedencia ori
 
 
 ## El sujeto liberado es un sujeto adonado, dado en gracia por el amor para el devenir inevitable, para el devenir que aun ahora y siempre no tiene nombre.
-    </body>
-</html>
